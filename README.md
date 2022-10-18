@@ -1,1 +1,1 @@
- It's depressing when you're still around and your albums are out of print
+With a face like mine, I do better in print
