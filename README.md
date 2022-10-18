@@ -1,1 +1,1 @@
-With a face like mine, I do better in print
+0x11. C - printf
